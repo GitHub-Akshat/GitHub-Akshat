@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **akshatji21052003@gmail.com**
 
-- 📄 Know about my experiences [ Resume link ](https://drive.google.com/file/d/1PmkCeiw56T5qK1lB9XacM6iCKaIm_0uQ/view?usp=drive_link)
+- 📄 Know about my experiences [ Resume link ](https://drive.google.com/file/d/1eIV4TPVzpS2GSEhHCsdcOLVNDflTZK3X/view)
 
 - ⚡ Fun fact **I Love Cold Coffee 😋**
 <br/>
